@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ionstat
+- 👋 Hi, I’m Matt (@ionstat)
 - 👀 I’m interested in the internet
 - 🌱 I’m currently learning everything I can
 - 💞️ I’m looking to collaborate on lots of projects
